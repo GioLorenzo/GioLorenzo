@@ -4,5 +4,8 @@
 - 💞️ Let me build your next website!
 - 📫 How to reach me:
 
+
 ---  gio.lorenzo.lui@gmail.com  ---
+
+---  602-710-6592 (call or text)  ---
 
